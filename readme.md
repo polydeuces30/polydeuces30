@@ -4,7 +4,7 @@
 
 ### 💫 About Me
 
-- 🎓 Information Systems student  
+- 🎓 Information Systems student Institut Teknologi Sepuluh Nopember, Surabaya
 - 📫 Contact me at: mettaanjali3055@gmail.com  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/metta-anjali-putri)
 
